@@ -1,1 +1,0 @@
-# preparazion-verifica
